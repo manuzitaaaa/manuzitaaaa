@@ -1,3 +1,6 @@
+welcome to my profile
+
+
 - 👋 Hi, I’m @manuzitaaaa
 - 👀 I’m interested in games, books, studying and learning new things
 - 🌱 I’m currently learning what schol teachs me lol
